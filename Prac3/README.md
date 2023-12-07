@@ -52,3 +52,19 @@ First, our group will create a group group on social software. When we have idea
 What challenges have you faced in pursuing a certain goal, and how have you overcome them?
 I think sufficient communication can solve most problems. After communication, everyone comes up with their own solutions, and then we can test and finally find a solution.
 
+Name: Zhao Entong
+
+**What skills do you think you are best at? Why?**
+My strongest skill lies in project coordination and communication. I excel in creating a harmonious and efficient team environment. This stems from my ability to understand different perspectives and find common ground among team members, ensuring smooth collaboration and productivity.
+
+**How do you contribute to the team?**
+My contribution to the team mainly revolves around facilitating effective communication and ensuring all members are aligned with the team's goals. I often act as a mediator during discussions, helping to clarify misunderstandings and streamline our collaborative efforts.
+
+**How do you manage your time and tasks?**
+I prioritize tasks based on their urgency and importance, creating a structured plan that guides my daily activities. This approach ensures that I stay on track and meet deadlines without compromising the quality of my work. I believe in proactive action, addressing tasks promptly to avoid last-minute rushes.
+
+**When you have a new idea or suggestion, how do you share it with the team?**
+Whenever I come up with a new idea, I first evaluate its relevance and potential impact on our project. Then, I share it with the team through our dedicated communication channels, often during meetings. I present my ideas clearly and encourage open discussion, welcoming feedback and suggestions from team members.
+
+**What challenges have you faced in pursuing a certain goal, and how have you overcome them?**
+One of the main challenges I've faced is coordinating tasks among team members with varying schedules and work habits. I overcame this by establishing regular check-ins and updates, which helped in maintaining a clear and consistent workflow. By fostering open communication and understanding, I was able to align our efforts towards our common goals.
